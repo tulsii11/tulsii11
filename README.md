@@ -63,6 +63,16 @@ Git • GitHub • Figma • VS Code
 
 ---
 
+## 🌐 Connect
+
+🌍 Portfolio • https://tulsii11.github.io/tulsidhameliya/
+
+💼 LinkedIn • https://www.linkedin.com/in/tulsi-dhameliya-12672b317
+
+📧 Email • tulsidhameliya66@gmail.com
+
+---
+
 ## 📌 A Note to Myself
 
 > "I don't want to know everything.
