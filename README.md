@@ -55,9 +55,11 @@ Git • GitHub • Figma • VS Code
 
 🎨 Designing interfaces
 
-📝 Creating a personal monthly magazine
+📝 Editorial Design
 
-📖 Always learning something new
+📚 Publishing ideas through design
+
+🚀 Always chasing the next idea.
 
 ---
 
